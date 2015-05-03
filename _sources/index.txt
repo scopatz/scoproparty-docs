@@ -10,7 +10,7 @@
 
 Professor Scopatz Party! May 9th, 2015, ATX
 ===========================================
-Finally! Anthony is got a real job! Come celebrate with...
+Finally! Anthony got a real job! Come celebrate with...
 
 * Go to the `O. Henry Pun-Off World Championships <http://punoff.com/>`_ during the day.
 * Reconvene at my place afterwards (6-7 PM+) for a full audio-visual-alcohol experience.
